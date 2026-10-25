@@ -1,1 +1,0 @@
-# gseokk.github.io
